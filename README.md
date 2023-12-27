@@ -1,3 +1,11 @@
+
+
+
+
+
+
+
+
 ### Keeping the Growth Mindset 
 >**"The growth mindset can open pathways to more creativity and possibility, and enable the setting of higher goals and more achievement."** ([Haffenden,2020](https://pages.github.com/))
 
